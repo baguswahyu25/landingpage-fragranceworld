@@ -1,1 +1,10 @@
-# landingpage-fragranceworld
+      ![ombak 2](https://github.com/user-attachments/assets/6d67b087-a882-415f-a6ce-c847e666e4b1)
+![nautica](https://github.com/user-attachments/assets/6a92f584-a6f3-478e-b52e-c1950f09e907)
+![lvimagination](https://github.com/user-attachments/assets/3203a22b-fbc4-4667-b71c-343db39f2b8d)
+![ice](https://github.com/user-attachments/assets/3a0468d9-bb91-47e3-b429-715e31249082)
+![eros](https://github.com/user-attachments/assets/7051c678-7f2c-40cc-8c0e-3eb2f678b26a)
+![download](https://github.com/user-attachments/assets/38cbf79c-31f2-4f0d-9cc8-e6303006335f)
+![blue](https://github.com/user-attachments/assets/a3962b12-f001-46bc-8b70-8e6bd34df3cd)
+![blue point](https://github.com/user-attachments/assets/ac988166-4bab-472f-a463-7bce8f96e1cd)
+![1](https://github.com/user-attachments/assets/b440164c-5650-48d2-87bc-4ee59264f4de)
+![landingpage]
